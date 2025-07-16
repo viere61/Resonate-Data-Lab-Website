@@ -1,4 +1,5 @@
-# Resonate Data Lab Sound Website
+# Resonate Data Lab Sound Website Manifesto
+
 
  ## Deo
 - Sound is an extension of a body. It's an extension of how we as a people interact, reflect, and live.
