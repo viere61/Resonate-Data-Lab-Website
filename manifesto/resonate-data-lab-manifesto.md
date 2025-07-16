@@ -13,7 +13,16 @@
 - Sound holds, it pours, and connects
 - Sound is a witness to time
 
-
+## Catelyn's Sound Manifesto
+- Sound acts as reassurance for interaction.
+- Sound can be a means for expression (you in the present), understanding/awareness (of your surroundings), reflection (you in the past), and communication (you with others).
+- Sound reflects embodied space and time.
+- Sound can keep you present.
+- Sound acknowledges matter.
+- Sound shapes individuals/individuality.
+- Everyone has different experiences (past and present) with sound.
+- Sound is contradictory/multifaceted (ugly and beautiful, loud and quiet, sharp and soft, new and expected).
+  
 ## Sarena's Sound is
 
 - Sound is the most direct medium of all.  
