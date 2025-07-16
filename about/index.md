@@ -1,7 +1,3 @@
----
-layout: default
-title: About
----
 
 # About Resonant Lab
 
