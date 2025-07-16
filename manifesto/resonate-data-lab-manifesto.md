@@ -36,3 +36,15 @@
 - Sound is a gulf and direct contact, at the same time.
 - Sound invites us to wonder.
 - Sound is always in flux. Sound is motion.
+
+## Liuyi's Sound is
+- Sound is a fundamental part of how I perceive, understand, and interact with the world.
+- Sound is information.
+- Sound is a medium for communication.
+- Sound is a medium for spoken language.
+- Sound is memories.
+- Sound is warning.
+- Sound is awareness.
+- Sound is more than physical.
+- Sound is a design element.
+- Sound is context.
