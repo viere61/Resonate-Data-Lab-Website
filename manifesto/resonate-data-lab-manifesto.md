@@ -1,4 +1,4 @@
-# Resonate Data Lab Sound Website Manifesto
+# Resonate Data Lab Sound Manifesto
 
 
  ## Deo
